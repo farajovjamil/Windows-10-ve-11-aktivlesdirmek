@@ -1,0 +1,1 @@
+# Windows-10-ve-11-aktivlesdirmek
